@@ -1,1 +1,2 @@
-will be finsihed soon! :P
+will be finished soon! :P
+suggest sum on strawpage maybeee!!
